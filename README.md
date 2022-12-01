@@ -1,5 +1,6 @@
 # **Корякин Денис Алексеевич**
 
+## Мое фото:
 ![](https://sun9-15.userapi.com/impg/qKCan-gN1lWt524w9lN41SrnN0MKGVVAT3mTDQ/Sx6SzkI9awQ.jpg?size=1431x2160&quality=96&sign=9b58b436a40e56b9d57592e1021f1d87&type=album)
 
 ## Профессиональная деятельность:
